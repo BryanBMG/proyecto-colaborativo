@@ -4,3 +4,5 @@ Vicente Lopez Celada
 Sebastian Sinan Todorov
 Bryan mArínez García
 Línea editada por Sebass
+Linea escrita por juanjo
+juanjoJuanji
